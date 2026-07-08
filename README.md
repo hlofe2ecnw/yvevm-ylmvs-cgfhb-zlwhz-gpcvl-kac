@@ -5,6 +5,6 @@ IERlIHRyb3IgYXQgdHJvZW4gZGVyZXMgdmlsIHJlZGRlIGRlbSBlbiBkYWcuCkRlIGVyIHPDpSBzaWty
 Hater du å se dem slik?
 Bli med meg.
 
-mdpv2
+discord.com : mdpv2
 
 Fraq zrt ra zryqvat.
